@@ -1,4 +1,4 @@
-
+Enhance OneNote for macOS with professional OneNote for macOS Script | auto-sync + custom themes, the #1 script. Includes auto-sync and custom themes for a smoother experience.
 
 
 
